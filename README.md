@@ -1,6 +1,10 @@
 # EFCloud机场官网地址
 
-最新地址：[efcloud.bio](https://www.efcloud.bio/#/register?code=VdXQrBz6)
+最新地址：[[efcloud.bio](https://www.efcloud.bio/#/register?code=VdXQrBz6)](https://www.efcloud.bio/#/register?code=5cQFSmAt/)
+
+```
+  自用云梯、 稳定好用还便宜...
+```
 
 ## EFCloud介绍
 
